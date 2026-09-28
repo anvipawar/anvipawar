@@ -104,7 +104,8 @@ More projects coming soon.
 
 ## Let's Connect
 
-https://github.com/anvipawar
+Git Hub :- https://github.com/anvipawar
+Linked IN :- www.linkedin.com/in/anvi-pawar-26046543b
 
 ---
 
